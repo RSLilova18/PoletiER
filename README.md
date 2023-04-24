@@ -1,3 +1,4 @@
 # PoletiER
-[Other.pdf](https://github.com/RSLilova18/PoletiER/files/11308897/Other.pdf)
+[Other (2).pdf](https://github.com/RSLilova18/PoletiER/files/11309294/Other.2.pdf)
+
 
